@@ -1,2 +1,0 @@
-# Glamaura
-Shopping Is Addiction 
